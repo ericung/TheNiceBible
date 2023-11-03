@@ -13,7 +13,9 @@ The odd duck out takes over.
 
 **The Apple**\
 Do you throw away the seed or do you plant the seed and nurture it to make a new tree?\
-No, it's not your semen.
+No, it's not your semen.\
+Are you guys learning or cramming for tests? Learning is more important than grades.\
+School is for learning, if you don't want to go to school, don't complain if someone else did.
 
 **Adam and Eve**\
 Girls like older guys who have their shit together and saved themselves up.\
