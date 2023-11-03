@@ -17,7 +17,8 @@ No, it's not your semen.
 
 **Adam and Eve**\
 Girls like older guys who have their shit together and saved themselves up.\
-It's lonely when you're trying to get your shit together.
+It's lonely when you're trying to get your shit together\
+that's why god gave Adam foreskin.
 
 **Adam's Rib**\
 Dad's gene, knowledge, and wisdom affects the children.
