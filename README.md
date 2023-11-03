@@ -6,7 +6,7 @@ Stories from the bible and the lessons they teach.
 God gets pissed off from too much responsibility.
 
 **Sodom and Gomorrah**\
-Sex is fun but do it responsibly.
+Sex is fun but do it responsibly. Are you ready for kids?
 
 **David and Gomorrah**\
 The odd duck out takes over.
