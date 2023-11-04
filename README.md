@@ -24,3 +24,8 @@ that's why god gave Adam foreskin.
 
 **Adam's Rib**\
 Dad's gene, knowledge, and wisdom affects the children.
+
+**Jesus Married a Hooker**
+To show that erections from looking at beautiful women are a gift.
+
+
